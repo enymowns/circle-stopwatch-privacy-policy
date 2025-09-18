@@ -46,7 +46,7 @@ Any changes will be posted on this page with a revised **"Last Updated"** date.
 ## Contact Us
 If you have any questions or concerns about this Privacy Policy, please contact us at:
 
-📧 **your-email@example.com**
+📧 **enymowns@gmail.com**
 
 ---
 
